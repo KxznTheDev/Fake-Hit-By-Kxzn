@@ -1,4 +1,4 @@
-# This Was Made By Kxnz#1000
+# This Was Made By west#1945
 
 # How To Setup
 
